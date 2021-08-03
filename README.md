@@ -1,0 +1,2 @@
+# phyco
+Qwyoosjkcnhyakwkwlwkqmvwwusowksvhsuiqn dwiosbs wjwnsjwvwhw
